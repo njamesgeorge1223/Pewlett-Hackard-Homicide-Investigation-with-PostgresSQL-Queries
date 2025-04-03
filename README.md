@@ -66,4 +66,4 @@ Although speculation, I believe Mr. Zhang kept the evidence in plain sight to re
 
 ## Copyright
 
-Nicholas J. George © 2023. All Rights Reserved.
+Nicholas J. George © 2024. All Rights Reserved.
